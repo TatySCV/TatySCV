@@ -1,6 +1,6 @@
 # 👩‍💻 Tatiana Campos Venegas
 
-📍 Curacautín, Chile | ✉️ [tcampos.dev@gmail.com](mailto:tcampos.dev@gmail.com) | [LinkedIn](https://www.linkedin.com/in/tatiana-campos)
+📍 Curacautín, Chile | ✉️ [tcampos.dev@gmail.com](mailto:tcampos.dev@gmail.com) | [LinkedIn](https://www.linkedin.com/in/tatyscv/)
 
 ---
 
